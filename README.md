@@ -11,3 +11,5 @@ deviantart:http://www.deviantart.com/
 patreon???
 
 <a href="http://8yyls.com/114358/">工作細胞 – 1 話</a>
+
+http://imgur.com/gallery/RDhsC
