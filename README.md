@@ -9,3 +9,5 @@ deviantart:http://www.deviantart.com/
 <a href="http://mikeinel.deviantart.com/art/Gravity-Falls-Confused-Kiss-483967423">Gravity Falls: Confused Kiss</a>
 
 patreon???
+
+<a href="http://8yyls.com/114358/">工作細胞 – 1 話</a>
